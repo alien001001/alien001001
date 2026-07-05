@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alien001001
-- 👀 I’m interested in ... girls, space station, planets
+- 👀 I’m interested in ... space station, planets
 - 🌱 I’m currently learning ... mathematics, Matlab
 - 💞️ I’m looking to collaborate on ... Projects that can bring me closer to my interests
 - 📫 How to reach me ... toko0891@gmail.com , nachkebia.tornike24@gtu.ge
